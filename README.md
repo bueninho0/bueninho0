@@ -7,3 +7,5 @@ paz de jesus e amor de maria!💙
 -me desenvolvendo em javaScript...
 
 *my instagram --> @me_aninha._*
+
+![](https://media.tenor.com/_Xl5kVJ-dDoAAAAi/snoopy.gif0
